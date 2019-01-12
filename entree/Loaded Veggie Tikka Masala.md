@@ -29,6 +29,3 @@ Recipe Credit: [Food With Feeling](https://foodwithfeeling.com/loaded-veggie-tik
 4. Add in the cauliflower and carrots and bring to a simmer. Simmer for 20 minutes.
 5. Once the veggies are tender, add in chickpeas, frozen peas and the remaining coconut milk. Stir to combine and let cook for 5 more minutes or until peas are fully heated through.
 6. Serve with rice and (optional) a bit more cilantro leaves and yogurt.
-
-## Notes
-None.
