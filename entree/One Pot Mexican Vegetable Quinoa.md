@@ -1,4 +1,5 @@
 # One Pot Mexican Vegetable Quinoa
+Recipe Credit: [Jessica Gavin](https://www.jessicagavin.com/one-pot-mexican-spiced-veggie-quinoa/)
 
 ## Ingredients
 - 1 tablespoon olive oil, (15ml)
