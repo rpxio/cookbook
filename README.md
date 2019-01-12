@@ -1,2 +1,2 @@
-# cookbook
-Recipes and such
+# Cookbook
+Recipes and such.
